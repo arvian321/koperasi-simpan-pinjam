@@ -1,0 +1,1 @@
+koperasi simpan pinjam dengan pinjaman bunga menetap 2.5% nantinya akan dikembangkan untuk bunga menurun
